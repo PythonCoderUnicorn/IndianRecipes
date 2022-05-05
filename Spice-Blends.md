@@ -237,6 +237,206 @@ Indian cooking is about using spices that you modify to your own taste, the foll
 
 
 
+### Minty Cumin Water Masala
+
+- called *jeera paani masala*
+- Makes 1.5 cups
+- 1/2 cup cumin seeds
+- 1 tablespoon black cumin seeds
+- 2 teaspoons ajwain seeds
+- 1 teaspoon vegetable oil
+- 1 teaspoon ground asafoetida
+- 1/2 cup cup ground dried mint leaves
+- 1 tablespoon ground ginger
+- 2 teaspoons ground black salt
+- 1 teaspoon salt (to taste)
+- 1 teaspoon freshly ground black pepper (to taste)
+- (1) in medium skillet roast together the cumin seeds, black cumin seeds and ajwain seeds, storring and shaking over medium heat, about 2 minutes. Let cool, grind in coffee grinder
+- (2) heat oil in saucepan over medium-high heat, add asafoetida. Quickly add ground spice mixture, mix well, about 2 minutes. Let cool.
+
+
+
+
+### Masala for Fried Breads
+
+- called *parantha masala*
+- Makes 1.5 cups
+- 1/3 cup ground dried fenugreek leaves
+- 1/3 cup ground dried mint leaves
+- 1/3 cup black peppercorns, coarsely ground
+- 1/4 cup ajwain seeds, coarsely ground
+- 1 tablespoon black salt (optional)
+- 1 tablespoon salt (to taste)
+- in small bowl, mix together all spices
+
+
+### Masala Stuffed Fried Breads
+
+- called *bharvaan parantha ka masala*
+- 1/2 cup ground coriander seeds
+- 1/4 cup ground dried pomegranate seeds
+- 2 tablespoon ajwain seeds, coarsely ground
+- 2 tablespoon mango powder
+- 2 tablespoon ground dried mint leaves
+- 1 tablespoon cayenne pepper 
+- 1 tablespoon garam masala
+- 1 tablespoon ground ginger
+- 1 tablespoon black salt
+- 1 teaspoon salt
+- 1 teaspoon ground nutmeg
+- 1 teaspoon ground mace 
+- in small bowl mix together
+
+
+### Roasted Chile Pepper Masala
+
+- called *bhuna mirchi ka masala*
+- Makes 1/2 cup
+- 1 tablespoon vegetable oil 
+- 15-20 dried red chile peppers 
+- 2 tablespoon red peppercorns
+- 2-4 tablespoon ground paprika
+- 1 teaspoon salt 
+- (1) in a medium skillet heat the oil over medium and roast chile pepper, stirring, shaking, 2 minutes. (advised to be done outside)
+- (2) add red peppercorns and roast until heated through, do not brown them. Mix with chile pepper and grind into powder, mix in paprika and salt.
+
+
+### Roasted Cumin and Fenugreek Masala
+
+- called *bhuna jeera aur methi ka masala*
+- Makes 1 cup
+- 1/4 cup cumin seeds
+- 2 tablespoon fenugreek seeds
+- 12-15 dried red chile pepper
+- 2 teaspoon salt
+- 1 teaspoon ground turmeric 
+- (1) in a medium skillet roast together cumin seeds, fenugreek seeds, red chile pepper over medium heat, stirring and shaking, 2 minutes
+- (2) let cool, grind to fine powder, mix in salt and turmeric
+
+
+
+### Punjabi Raita & Buttermilk Masala 
+
+- called *Punjabi raita aur lussi ka masala*
+- Makes 1/3 cup
+- 1/4 cup cumin seeds, dry roasted coarsely ground
+- 1 tablespoon black peppercorns, dry roasted coarsely ground
+- 1 tablespoon coarsely ground dried mint leaves
+- 1 teaspoon ground paprika
+- 1 teaspoon salt
+- in a bowl mix together all spices 
+
+
+### Kashmiri Raita Masala
+
+- called *Kashmiri ka raita masala*
+- 1/4 cup coriander seeds 
+- 2 tablespoon fennel seeds
+- 2 tablespoon cumin seeds
+- 2 rice-size pieces of asafoetida 
+- 1 tablespoon black mustard seeds
+- 2 teaspoon grind ginger
+- 1/2 - 1 teaspoon cayenne pepper
+- 1 teaspoon salt
+- (1) in medium skillet roast together coriander seeds, fennel seeds and cumin seeds, stirring and shaking, 2 minutes
+- (2) in same skillet dry-roast asafoetida and mustard seeds until they pop, 1 minute, mix with coriander, fennel, cumin seeds
+- (3) let cool, grind to fine powder, mix in ginger, cayenne and salt
+
+
+### Chickpea Masala with Pomegranate seeds
+
+- Makes 1.5 cups 
+- 1/2 cup ground cumin
+- 2 tablespoon ground dried pomegranate seeds
+- 2 tablespoon tamarind or mango powder
+- 1 tablespoon ground dried fenugreek leaves
+- 1 tablespoon freshly ground black pepper
+- 1 tablespoon cayenne pepper
+- 2 teaspoon ground ajwain seeds
+- 1 teaspoon ground cinnamon 
+- 1 teaspoon ground cloves 
+- 1 teaspoon ground ginger 
+- 1 teaspoon ground asafoetida
+- 1 teaspoon ground nutmeg
+- 1/2 teaspoon ground mace
+- 1/2 cup ground coriander seeds
+- 1 tablespoon ground black salt
+- 1 teaspoon ground turmeric
+- (1) in a medium skillet roast together all ingredients except black salt and turmeric, stirring and shaking over medium heat, 2 minutes
+- (2) reduce heat heat to low and stir until dark brown, 3 minutes. remove from heat, mix in coriander, black salt and turmeric
+
+
+### Fragrant Masala with Nuts 
+
+- called *Korma masala*
+- Makes 1.5 cups
+- 1/4 cup each shelled and ground pistachios, almonds and cashews
+- 2 tablespoon white poppy seeds
+- 2 tablespoon ground ginger
+- 2 tablespoon ground green cardamom seeds
+- 1 tablespoon ground cinnamon
+- 1 tablespoon ground black pepper
+- 1 teaspoon ground cloves
+- in a medium skillet roast together all ingredients stirring and shaking over medium heat, 2 minutes, let cool 
+
+
+### Indian Grilling Masala 
+
+- called *tandoori masala*
+- Makes 1.5 cups
+- 1 cup Mughlai Garam Masala with nutmeg and mace
+- 1/4 cup ground dried fenugreek leaves
+- 2 tablespoon ground fenugreek leaves
+- 1-2 tablespoon cayenne pepper
+- 1 tablespoon ground paprika
+- 1 teaspoon
+- place all spices in a bowl and mix with spoon 
+
+
+### Wok-Cooked Foods Masala
+
+- called *Kadhai masala*
+- Makes 1.25 cups 
+- 1/5 cup coarsely ground coriander seeds
+- 2 tablespoon ground dried fenugreek leaves
+- 2 tablespoon ground dried mint leaves
+- 2 tablespoon ground cumin seeds
+- 1 tablespoon ground fennel seeds
+- 1 tablespoon ground ginger
+- 1 tablespoon ground mango powder
+- 1 tablespoon ground dried pomegranate seeds
+- 1 tablespoon cayenne pepper
+- 1 teaspoon ground paprika
+- 1 teaspoon ground black cardamom seeds
+- 1 teaspoon ground nutmeg
+- 1 teaspoon ground black salt
+- in a bowl mix all spices
+
+
+### Gujarati Lentil Masala
+
+- called *dhansak masala*
+- Makes 2.5 cups
+- 1 cup coriander seeds
+- 1/4 cup cumin seeds
+- 1 tablespoon black cumin seeds
+- 1/4 cup black peppercorns
+- 1/4 cup fenugreek seeds
+- 1/4 cup dried red chile pepper
+- 1/4 cup dried curry leaves
+- 1 tablespoon white poppy seeds
+- 1 tablespoon mustard seeds
+- 4 star anise broken 
+- 10 bay leaves, coarsely broken
+- 1 tablespoon ground cinnamon
+- 1 tablespoon ground cloves
+- 2 teaspoon ground black cardamom seeds
+- 2 teaspoon ground green cardamom seeds
+- 2 teaspoon ground nutmeg
+- 1 teaspoon ground mace
+- (1) in medium skillet roast together coriander, cumin, black cumin, peppercorns, fenugreek and chile pepper. stir and shake pan over medium heat, 2 minutes. 
+- (2) mix in curry leaves, poppy seeds, mustard seeds, anise, bay leaves and roast 1 minute
+- (3) let cool, then grind into powder. mix in cinnamon, cloves, both cardamom seeds, nutmeg and mace
 
 
 

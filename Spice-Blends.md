@@ -214,9 +214,25 @@ Indian cooking is about using spices that you modify to your own taste, the foll
 - 1 tbsp ground black salt
 - 1 tablespoon of salt
 - 1 tbsp cayenne pepper
-- in medium Skillet rust together humans and AJWain seeds  stirring and shaking,  2 medium minutes. Cool down, grind in coffee grinder, return to skillet, add mango and tamarind powder, mint ginger black salt, salt, cayenne pepper. Roast again over medium heat for 1 minutes, cool down.
+- in medium skillet roast together cumin and ajwain seeds  stirring and shaking,  2 medium minutes. Cool down, grind in coffee grinder, return to skillet, add mango and tamarind powder, mint ginger black salt, salt, cayenne pepper. Roast again over medium heat for 1 minutes, cool down.
 
 
+
+
+### Bombay Bread Snack Masala
+
+- called *pav-bhaji*
+- Makes 1.5 cups
+- 1/2 cup freshly ground black pepper
+- 1-2 tablespoons cayenne pepper (to taste)
+- 1/3 cup ground coriander seeds
+- 1/3 cup ground cumin
+- 1.5 teaspoons ground turmeric
+- 1.5 teaspoons ground cinnamon
+- 1.5 teaspoons ground black cardamom seeds
+- 1.5 teaspoons ground cloves
+- 1.5 teaspoons ground asafoetida
+- in medium skillet roast all spices, stirring and shaking over medium heat, until mixture is fragrant, about 2 minutes. 
 
 
 
